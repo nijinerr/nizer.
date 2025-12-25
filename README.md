@@ -46,3 +46,4 @@ Listening to: My Wish
 
 <img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/93ed9171-4b5b-4ac8-b8f2-7712e4b8d399" />
 
+₍ᐢ. .ᐢ₎
